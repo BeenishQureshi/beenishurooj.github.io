@@ -1,0 +1,1 @@
+I'm a Technical Writer with 4+ years of experience documenting SaaS, AI, cloud and technical products. My work includes product documentation, user guides, knowledge bases, technical content, troubleshooting documentation and API documentation.
